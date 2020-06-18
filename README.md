@@ -1,2 +1,2 @@
 # comp_network_labs
-Трошки пізніше я добавлю посилання на сертифікат coursera, ще не всигла закінчити.
+Посилання на сертифікат: [coursera](https://www.coursera.org/account/accomplishments/records/J6WWVVJECSXM)
